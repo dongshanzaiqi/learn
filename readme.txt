@@ -1,4 +1,2 @@
-
-wo xi huan ni.zuo wo lao po hao bu hao.
-xi wang ni mei you nan peng you hai.
-dggsggsg
+My name is Wang zuoshuai.
+I love you.
