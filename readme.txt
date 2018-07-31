@@ -1,4 +1,4 @@
 My name is Wang zuoshuai.
 
-ni hao my friends.
+Hello my friends.
 nice to meet you.
